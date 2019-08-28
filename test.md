@@ -1,4 +1,4 @@
-![ando](https://imgchr.com/i/mHV1XQ)
+![纤维](https://github.com/lionel-ate/IMG/raw/master/timg%20(1).jpg)
 
 123
 
@@ -13,6 +13,6 @@
 
 12233
 
-![andywoohl](https://imgchr.com/i/mHV1XQ)
+![andywoohl](https://github.com/lionel-ate/IMG/blob/master/timg%20(1).jpg)
 
 2019/8/28 20:52:20 
